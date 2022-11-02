@@ -1,0 +1,3 @@
+- practice make perfect
+- going to be a good night
+- you can do it, never give up
